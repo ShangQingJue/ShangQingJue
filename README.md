@@ -1,4 +1,4 @@
-### Hi there 👋
+![](https://count.getloli.com/get/@ShangQingJue.github.readme?theme=rule34)
 
 <!--
 **ShangQingJue/ShangQingJue** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
